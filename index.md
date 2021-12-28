@@ -3,4 +3,4 @@
 <br>
 
 ## Latest Blogs
-[BREAKING NEWS : Nopply Deleted His Discord Account](/nopply-deleted-his-discord-account)
+[BREAKING NEWS : Nopply Deleted His Discord Account](nopply-deleted-his-discord-account)
