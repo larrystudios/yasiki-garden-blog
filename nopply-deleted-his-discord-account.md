@@ -9,3 +9,7 @@ Nopply has announced that this will happen for two times, the first time on [20 
 An admin [announced](https://discord.com/channels/920199448603275274/920210265889460254/924662719225925703) that on 31 December 2021, there will be a New Year celebration, which after that there will be a #PrayForNopply event too.
 
 We will keep you updated regularly through this blog post.
+
+## UPDATE : NOPPLY IS BACK
+
+On 29 December 2021, Nopply's Discord account has been restored, although he's still inactive.
